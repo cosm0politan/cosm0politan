@@ -10,7 +10,7 @@
 <img src="https://github.com/user-attachments/assets/489bebd4-dc26-449f-bbb4-5d6cdf857b0a" alt="me" align="left" width="210" height="280" > 
  ‧₊˚. hiya!! im scott, you can also call me dani, angel or my pony's name. i go by whatever pronouns you assume id use! you'll usually find me in the mcyt area pls come and say hi!! i really like mcyt, youtube, nostalgia, music, spirituality, art, and all other kinds of things. i really love questions and trivia, especially general knowledge or on my special interests. 
 
-im most active on twitter (kinda), sometimes when i go on pt hiatus you can always reach me on there. i also make edits on tiktok of patrick stump from fall out boy and dan and phil from youtube. i also have an ata page, and two strawpages, my pt strawpage is ddamnskippy. 
+im most active on twitter (kinda), sometimes when i go on pt hiatus you can always reach me on there. i also make edits on tiktok of patrick stump from fall out boy and dan and phil from youtube. i also have an [ata page](https://cosm0politan.atabook.org), and two strawpages, my pt strawpage is [ddamnskippy](https://ddamnskippy.straw.page). 
 
 i dont have a dni, i block freely. i am plural and i sometimes may refer to my pony as myself. i have autism and sometimes i may say something that comes off weird or not understand what you're saying, please let me know if i say anything you dont understand !! ✧˖°.
  <img width="1200" height="70" alt="1000182673" src="https://github.com/user-attachments/assets/624084fd-0da2-4931-b1f1-f47a964d9bba" />
